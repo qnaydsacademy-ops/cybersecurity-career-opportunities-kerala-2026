@@ -1,5 +1,6 @@
 # Cybersecurity Career Opportunities in Kerala: 5 Roles to Explore in 2026
-<img width="1280" height="720" alt="WhatsApp Image 2026-10-15 at 09 53 58" src="https://github.com/user-attachments/assets/35b7ea5a-7f97-4772-b7b2-9f63dd945ba2" />
+<img width="1280" height="853" alt="WhatsApp Image 2026-10-15 at 10 03 43" src="https://github.com/user-attachments/assets/63f77f60-982f-43bc-bc8e-7e6b2608a37e" />
+
 Cybersecurity is an evolving field focused on protecting computer systems, networks, applications, and sensitive information from digital threats.
 
 If you are searching for the *Best Cyber Security Institute in Kerala*, understanding different cybersecurity career paths is a useful first step.
